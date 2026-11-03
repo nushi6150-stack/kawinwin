@@ -1,2 +1,0 @@
-# kawinwin
-KAwinwin
